@@ -10,7 +10,7 @@ Ingredients:
 - 1 tablespoon baking powder
 - 56g granulated sugar 
 - 1 teaspoon salt
-- 84g cold unsalted butter (or cannabutter), cut into small chunks 
+- 84g cold unsalted butter, cut into small chunks (To use cannabutter, see notes at the end.)
 - 1/2 cup buttermilk, plus extra for brushing 
 - 1/2 cup sourdough discard, at least 24 hours after feeding 
 - 1 egg
@@ -32,3 +32,5 @@ Instructions:
 Serve warm. Scones can be frozen and reheated later.
 
 Based on Sourdough Scones by Eileen Gray, https://www.baking-sense.com/2019/11/26/sourdough-scones/
+
+Cannabutter notes: I had good results with an approximately 4:1 ratio of conventional butter to cannabutter. Here, that would be about 17g of cannabutter, mixed with 67g of conventional unsalted. Melt the two butters together and mix well, then refrigerate until solid. With these amounts, the cannabis flavor was undetectable and the strength felt like about 8-10mg each.
