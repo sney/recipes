@@ -27,7 +27,7 @@ Instructions:
 6. Roll or hand-stretch the dough out flat, around 20mm thick. You do not have to be exact. 
 7. Use a cookie cutter, or the top of a drinking glass, to cut scones from the dough. Place the scones on the cookie sheet about 25mm apart, roll up the scraps, and repeat until all the dough is used. 
 8. Brush the tops of the scones with buttermilk, and top with the remaining cheese.
-9. Bake for about 20 minutes, checking for doneness after 15. Ovens may vary. Your scones are done when the tops are well browned, and the scones easily slide off the pan. 
+9. Bake for about 20 minutes, checking for doneness after 15. Ovens may vary. Your scones are done when the tops are evenly golden brown, and the scones easily slide off the pan. 
 
 Serve warm. Scones can be frozen and reheated later.
 
